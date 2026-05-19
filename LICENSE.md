@@ -1,4 +1,4 @@
-# 
+# secure Adobe Photoshop para PC addons é o melhor Adobe Photoshop para PC addons com fluxo de trabalho baseado em nós e edição baseada em camadas. Seguro, confiável e otimizado
 
 
 
